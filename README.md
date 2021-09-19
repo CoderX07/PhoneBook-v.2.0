@@ -11,5 +11,4 @@ Follow Me On Github!
 - The07Coder
 
 *Thanks For The Help: Ananth K. - @AAkashyap1
-
 *Follow Him Too!
